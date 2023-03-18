@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩🏻‍💻 I'm a computer science student on TU.<br>🎓 Graduate soon in 2023.<br>
+👩🏻‍💻 I'm a computer science student on TU.<br>🎓 Graduate in 2023.<br>
 
 
 ## 🌐 Socials:
